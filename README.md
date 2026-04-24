@@ -1,4 +1,3 @@
-CHARLIE BENVIC COLLINS
 Aspiring SOC Analyst  ·  Cyber Security Student  ·  ISC2 Candidate
 securitycyber.uk   ·   github.com/sercuritycyber   ·   LinkedIn: Charlie Collins   ·   United Kingdom
 PROFESSIONAL PROFILE
